@@ -3,3 +3,5 @@
 еще прочитайте  читать!.txt
 
 телеграмм канал https://https://t.me/+Nwz0WjfBoAk2NjFi
+
+пароль от архива : byharcha
