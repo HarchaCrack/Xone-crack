@@ -2,4 +2,4 @@
 
 еще прочитайте  читать!.txt
 
-телеграмм канал https://web.telegram.org/k/#-2243812044
+телеграмм канал https://https://t.me/+Nwz0WjfBoAk2NjFi
